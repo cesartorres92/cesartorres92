@@ -1,18 +1,14 @@
-## Hi there 👋
-
-<!--
-**cesartorres92/cesartorres92** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### HELLO!
 
 ![image1](https://media.tenor.com/uQgtTwGTGm8AAAAi/the-mandela-catalogue-cesar-torres.gif)
+
+## Get a load of this guyyyy
+
+Anyways hihi, this is a big wip as you can tell 
+
+I go by Jekyll, Io, or Cesar 
+Refer to me how people refer to you \(mirror pronouns\)
+
+My current main fandoms are TMC and Grace, but I also like Forsaken, DoD, various Minecraft and Roblox ARGs, The Magnus Archives, and a lot moreee
+
+More info in the linked stuffff :D
