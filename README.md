@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![image1]([https://tenor.com/view/the-mandela-catalogue-cesar-torres-tmc-petpet-gif-26568422](https://media.tenor.com/uQgtTwGTGm8AAAAi/the-mandela-catalogue-cesar-torres.gif))
+![image1](https://media.tenor.com/uQgtTwGTGm8AAAAi/the-mandela-catalogue-cesar-torres.gif)
