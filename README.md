@@ -10,8 +10,8 @@ I go by Jekyll, Io, or Cesar
 Refer to me how people refer to you \(mirror pronouns\)
 
 ### C+H!! And W2I most of the time ^^
-Feel free to friend me :D I love making friends on here!
+Feel free to friend me :D I love making friends on here! I will most likely friend u first lolol
 
-My current main fandoms are TMC and Grace, but I also like Forsaken, DoD, various Minecraft and Roblox ARGs, The Magnus Archives, and a lot moreee
+My current main fandoms are TMC and Grace, but I also like Forsaken, DoD, various Minecraft and Roblox ARGs, The Magnus Archives, CRK and a lot moreee
 
 More info in the linked stuffff :D
