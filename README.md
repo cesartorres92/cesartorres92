@@ -6,7 +6,7 @@
 
 Anyways hihi, this is a big wip as you can tell 
 
-I go by Jekyll, Io, or Cesar 
+I go by Jekyll, Io, or Cesar  
 Refer to me how people refer to you \(mirror pronouns\)
 
 ### C+H!! And W2I most of the time ^^
