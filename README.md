@@ -7,7 +7,7 @@
 Anyways hihi, this is a big wip as you can tell 
 
 I go by Jekyll, Io, or Cesar  
-Refer to me how people refer to you \(mirror pronouns\)
+All pronouns!!
 
 ### C+H!! And W2I most of the time ^^ I may miss small emotes and interactions as I'm off tab often!
 Feel free to friend me :D I love making friends on here! I will most likely friend u first lolol
