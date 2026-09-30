@@ -19,4 +19,6 @@ More info in the linked stuffff :D
 
 Also sign my **Atabook** if ya want !!
 
+i follow people i think are cool,,
+
  ![image2](https://static.wikia.nocookie.net/grace-rbx/images/6/6d/DoppelDance.gif/revision/latest?cb=20250721084643) 
